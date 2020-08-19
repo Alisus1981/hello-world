@@ -2,5 +2,8 @@
 
 Hi humans!
 
-I am Alicia Susana Lúcar Bazán, but you can call me Alisus
-I am very interested in this course like a lawyer and I hope in the future, to teach another people like me this knowledge.
+My name is Alicia Lucar Bazan
+I hope to learn a lot about it
+is a different world to me!
+I love the books and to study a lot.
+Thanks.
